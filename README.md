@@ -1,4 +1,5 @@
 - 👋 Hi, I’m @QueerNB
+- I also go by Cute Boi
 -  Pronouns: They/Them
 
 <!---
